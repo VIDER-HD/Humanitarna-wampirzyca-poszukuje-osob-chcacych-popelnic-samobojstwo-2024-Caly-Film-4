@@ -11,7 +11,7 @@ Humanitarna wampirzyca poszukuje osób chcących popełnić samobójstwo 2024 Ca
 
 ᐅᐅ https://weflix.cloud/movie/988402/humanist-vampire-seeking-consenting-suicidal-person.html?github
 
-W Hollywood lat 80. gwiazda filmów dla dorosłych i aspirująca aktorka Maxine Minx w końcu przeżywa swój wielki przełom. Ale gdy tajemniczy zabójca prześladuje gwiazdki Hollywood, ślad krwi grozi ujawnieniem jej złowrogiej przeszłości.
+Młoda wampirzyca nie jest w stanie zabić, aby zaspokoić swoje zapotrzebowanie na krew, ale być może znalazła rozwiązanie w postaci młodego mężczyzny ze skłonnościami samobójczymi. Sasha jest młodą wampirzycą z poważnym problemem: jest zbyt wrażliwa, by ją zabić. Kiedy zirytowani rodzice odcięli jej dopływ krwi, życie Sashy jest zagrożone. Na szczęście spotyka Paula, samotnego nastolatka ze skłonnościami samobójczymi, który jest gotowy oddać życie, aby ją uratować. Jednak ich przyjacielska umowa wkrótce przeradza się w nocną wyprawę, by spełnić ostatnie życzenia Paula przed świtem.
 
 Studia filmowe: DC Films, Atomic Monster, The Safran Company, Peter Safran
 
